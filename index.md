@@ -1,4 +1,4 @@
-#Santikat02 
+#Santikat02
 ###360
 
 This is my 360 image taken in our high school library.
